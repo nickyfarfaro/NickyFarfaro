@@ -1,11 +1,13 @@
 # Holus soy Nicol sin E, pero podes decirme Nicky <3
 
 ## SOBRE MÍ:
-<img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExcmg3N3NmeGU0ODVnc3B2Zjh2dWdieGp6NHh3NGl5Y3lkYThqYnhqaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Rgn5KRgAhPIpSwayQg/giphy.gif" widgh="300" align="right" >
+<img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZXBmZGU1Z21udm1rd3B5NTN0cmtmMG4wdHM0OWNheWVzcXFrOG5mbiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/lRvz4z4Ql1T1UjtKKF/giphy.gif" widgh="200" align="right" >
 
 •🐠Soy de PISCISCOMOJUSTIN
 
 Mi tatuaje favorito es un dragon rojo gigante en mi espalda
+
+Me gustan hombres y mujeres
 
 •📖Me encanta aprender sobre distintas cosas, sobre todo el arte
 

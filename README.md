@@ -4,10 +4,6 @@
 
 •🐠Soy de PISCISCOMOJUSTIN
 
-•🪡Me encantan los tatuajes y piercings 
-
-•🥎Me encanta jugar al Minecraft y al Sóftbol
-
 •📖Me encanta aprender sobre distintas cosas, sobre todo el arte
 
 •🤸🏻‍♀️Amo cualquier disciplina que involucre la movilidad corporal
@@ -35,4 +31,14 @@
 ## ME DEDICO A:
 
 •🏝️Alquiler de Cabañas en el delta (seguime en Instagram @nickyarroyon)
+
+
+
+## INTERESES:
+Tatuajes y piercings
+Musica y danza
+Minecraft 
+Softball
+Anime
+
 

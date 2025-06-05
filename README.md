@@ -35,10 +35,17 @@
 
 
 ## INTERESES:
+
+<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHRlMWc0YnBqa3NnMXBwMHNtZDk0OGFscW44emR3OG9pMDJsYnp3YSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/fB2IRTXd07IkcStfwU/giphy.gif" widgh="120" align="right" />
+
 •🪡Tatuajes y piercings
+
 •🎶Musica y danza
+
 •👾Minecraft 
+
 •🥎Softball
+
 •🎋Anime
 
 

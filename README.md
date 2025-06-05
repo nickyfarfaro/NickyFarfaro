@@ -1,4 +1,6 @@
-SOBRE MÍ:
+# Holus soy Nicol sin E, pero podes decirme Nicky <3
+
+## SOBRE MÍ:
 
 •🐠Soy de piscis 
 
@@ -11,7 +13,9 @@ SOBRE MÍ:
 •🤸🏻‍♀️Amo cualquier disciplina que involucre la movilidad corporal
 
 
-FORMACIÓN:
+
+
+## FORMACIÓN:
 
 •💻Estudiante de Programación en la UTN FRGP
 
@@ -26,7 +30,9 @@ FORMACIÓN:
 •🩰Bailarina formada en distintos estilos: Theater Jazz, Contempo, Lyrical, Reggaeton, Urbano y ballet 
 
 
-ME DEDICO A:
+
+
+## ME DEDICO A:
 
 •🏝️Alquiler de Cabañas en el delta (seguime en Instagram @nickyarroyon)
 

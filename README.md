@@ -2,7 +2,7 @@
 
 ## SOBRE MÍ:
 
-•🐠Soy de piscis 
+•🐠Soy de PISCISCOMOJUSTIN
 
 •🪡Me encantan los tatuajes y piercings 
 

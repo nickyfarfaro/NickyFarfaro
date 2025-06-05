@@ -35,10 +35,10 @@
 
 
 ## INTERESES:
-Tatuajes y piercings
-Musica y danza
-Minecraft 
-Softball
-Anime
+•🪡Tatuajes y piercings
+•🎶Musica y danza
+•👾Minecraft 
+•🥎Softball
+•🎋Anime
 
 

@@ -4,9 +4,9 @@
 
 •🐠Soy de PISCISCOMOJUSTIN
 
-Mi tatuaje favorito es un dragon rojo gigante en mi espalda
+•🐲Mi tatuaje favorito es un dragon rojo gigante en mi espalda
 
-Me gustan hombres y mujeres
+•🏳️‍🌈Me gustan hombres y mujeres
 
 •📖Me encanta aprender sobre distintas cosas, sobre todo el arte
 

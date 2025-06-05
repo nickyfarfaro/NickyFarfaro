@@ -1,7 +1,7 @@
 # Holus soy Nicol sin E, pero podes decirme Nicky <3
 
 ## SOBRE MÍ:
-<img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExcmg3N3NmeGU0ODVnc3B2Zjh2dWdieGp6NHh3NGl5Y3lkYThqYnhqaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Rgn5KRgAhPIpSwayQg/giphy.gif" widgh="200" aligh="right" />
+<img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExcmg3N3NmeGU0ODVnc3B2Zjh2dWdieGp6NHh3NGl5Y3lkYThqYnhqaiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Rgn5KRgAhPIpSwayQg/giphy.gif" widgh="200" align="right" />
 
 •🐠Soy de PISCISCOMOJUSTIN
 

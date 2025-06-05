@@ -1,7 +1,7 @@
 # Holus soy Nicol sin E, pero podes decirme Nicky <3
 
 ## SOBRE MÍ:
-<img src="https://pin.it/O8CoXDVS2" widgh="120" align="right" />
+<img src="https://pin.it/O8CoXDVS2.gif" widgh="120" align="right" />
 
 •🐠Soy de PISCISCOMOJUSTIN
 

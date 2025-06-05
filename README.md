@@ -1,8 +1,12 @@
 SOBRE MÍ:
 •🐠Soy de piscis 
+
 •🪡Me encantan los tatuajes y piercings 
+
 •🥎Me encanta jugar al Minecraft y al Sóftbol
+
 •📖Me encanta aprender sobre distintas cosas, sobre todo el arte
+
 •🤸🏻‍♀️Amo cualquier disciplina que involucre la movilidad corporal
 
 
